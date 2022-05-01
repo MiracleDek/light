@@ -1,0 +1,1 @@
+so some of the code are made by me DiegoBot#1739 and some code i took it from another yt channel.
